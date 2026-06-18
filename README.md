@@ -1,1 +1,1 @@
-# Al-Ayyam-al-Bid-Maroc
+# Al-Ayyam-al-Bid-Maghrib
